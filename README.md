@@ -2,3 +2,7 @@
 ![kirin](https://github.com/user-attachments/assets/d3506703-973f-4372-90c2-4ea2ede25354)
 ![grub2](https://github.com/user-attachments/assets/d348ef85-eb04-41a3-b7ad-d1b61805dae9)
 ![grub](https://github.com/user-attachments/assets/b23b08de-0381-414a-8105-cb9b1c875bb6)
+![IMG_20250728_160820632_HDR](https://github.com/user-attachments/assets/2c41090f-a58f-49c6-a309-f0431a1181bf)
+![IMG_20250728_160812822_HDR](https://github.com/user-attachments/assets/cb1f7e4e-972d-408f-aa4e-e29c6c52f4cd)
+![IMG_20250728_160903328_HDR](https://github.com/user-attachments/assets/292927d3-8eba-45bf-a8c5-8469e9ff4c2b)
+![IMG_20250728_160830412_HDR](https://github.com/user-attachments/assets/3a295147-a541-48af-9515-59ecfa42a734)
